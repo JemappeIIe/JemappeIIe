@@ -1,2 +1,2 @@
-Hi, I'm @JemappeIIe  
+Hi, I'm @jemappeiie
 Here's my website https://jemappeiie.github.io/
